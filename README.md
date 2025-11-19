@@ -18,7 +18,6 @@
 
 - 📝 I regularly write articles on **[https://usenubis.com](https://usenubis.com)**
 
-- 📄 Know about my experiences **[https://oladosumayowa.cv](https://oladosumayowa.cv)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
